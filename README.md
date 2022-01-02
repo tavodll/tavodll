@@ -1,2 +1,2 @@
-Professional Valorant Player and Developer
+Professional Valorant Player and Developer -
 Personal account
